@@ -1,4 +1,4 @@
-### HX Softwares Cracked by LokiShop#8112 | Installation
+### HX Softwares Cracked by Loser
 
 1. Launch the "Hx_loader"
 2. Step 2: Launch Fivem 
